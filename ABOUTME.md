@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @prasanthi
+- 👀 I’m interested in coding
+- 🌱 I’m currently pursuing my UG degree @ritchennai25'
